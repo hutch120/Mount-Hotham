@@ -1,7 +1,5 @@
 # Mount-Hotham
 
-Alright snow bunnies, listen up! Get ready to shred, carve, and chill with my insider tips for Hotham and Dinner Plain – your ultimate guide to the mountains!
-
 ## Downhill Thrills at Hotham
 
 *   **Trail Map:** Ditch the paper and embrace the future! Download the Hotham app for live location tracking and connect with your crew on the slopes. Find it here: [https://www.mthotham.com.au/on-mountain/getting-about/trail-map](https://www.mthotham.com.au/on-mountain/getting-about/trail-map)
@@ -32,7 +30,3 @@ Alright snow bunnies, listen up! Get ready to shred, carve, and chill with my in
 *   **Big D Après Drinks (Hotham):** Après-ski done right! Get your bevvy on at Big D. Find it here: [https://maps.app.goo.gl/yr6JiWKkL1g5Y6Rb6](https://maps.app.goo.gl/yr6JiWKkL1g5Y6Rb6)
 *   **Dinner Plain Hotel:** End the day with some well-deserved drinks. Find it here: [https://maps.app.goo.gl/7BxyUwuu2W1JNvPm9](https://maps.app.goo.gl/7BxyUwuu2W1JNvPm9)
 
-Let's make this a season to remember! See you on the slopes!
-
-Citations:
-[1] https://maps.app.goo.gl/7BxyUwuu2W1JNvPm9
